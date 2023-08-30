@@ -1,9 +1,9 @@
 # TRX-Auto-Withdraw-Stopper-Remove-Cancel-
 Contact: IF YOU WANT SCRIPT DM ME IN TELEGRAM 👇 👇 👇
 
-https://t.me/tukuno
+https://t.me/tuknoe
 
-https://t.me/tukuno
+https://t.me/tuknoe
 
 HASHTAGS: HASHTAGS: HASHTAGS: HASHTAGS:
 HASHTAGS: HASHTAGS: HASHTAGS: HASHTAGS:
